@@ -234,4 +234,4 @@ Metal Slug 3 is available as a full free version with all features and updates i
 Get ready to relive the action with Metal Slug 3! **Download now and embark on an epic adventure!**
 
 ---
-**Last updated:** 2026-11-04 22:18:29 UTC
+**Last updated:** 2026-11-05 02:59:23 UTC
